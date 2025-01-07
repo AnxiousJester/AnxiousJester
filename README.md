@@ -2,7 +2,10 @@ Work in progress . . don't tell me to be an accurate shadow milk >_<
 <!--
 **AnxiousJester/AnxiousJester** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<source media="(prefers-color-scheme: dark)" [srcset="YOUR-DARKMODE-IMAGE">](https://tenor.com/owM5AxoeGoN.gif)
+ <source media="(prefers-color-scheme: light)" [srcset="YOUR-LIGHTMODE-IMAGE">](https://tenor.com/owM5AxoeGoN.gif)
+ <img alt="YOUR-ALT-TEXT" src="YOUR-DEFAULT-IMAGE">
+</picture>
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
