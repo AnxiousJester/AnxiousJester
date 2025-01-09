@@ -2,11 +2,11 @@ Work in progress . . don't tell me to be an accurate shadow milk >_<
 <!--
 **AnxiousJester/AnxiousJester** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-<source media="(prefers-color-scheme: dark)"srcset="![17363512534166364282011108839302](https://github.com/user-attachments/assets/c89bc2b9-f624-4b33-bfdd-fddfb857f517)
+p align="center">
+![ezgif-1-87fb0e500f](https://github.com/user-attachments/assets/285abcfc-f31a-4c4a-8d3c-241304b6ffe4)
 
- <source media="(prefers-color-scheme: light)" srcset="![17363512534166364282011108839302](https://github.com/user-attachments/assets/4123f110-0cf7-43a8-9e4a-bb0690a5533e)
-">
- <img alt="YOUR-ALT-TEXT" src="YOUR-DEFAULT-IMAGE">
-</picture>
-![17363515959606867580228842608839](https://github.com/user-attachments/assets/c3111308-1b2f-4f01-9d12-bd0da096a20a)
+</p>
+
+<p align="center">
+![ezgif-1-ae88a18681](https://github.com/user-attachments/assets/c5d1e423-02f0-4961-b409-99a5609de370)
 
