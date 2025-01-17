@@ -1,4 +1,4 @@
-💤 ♧ {{ DON'T YOU THINK YOU'VE CAUDED ENOUGH TROUBLE? }} ♧ 💤
+💤 ♧ {{ DON'T YOU THINK YOU'VE CAUSED ENOUGH TROUBLE? }} ♧ 💤
 
 
 <p align="center">
