@@ -28,3 +28,5 @@ TALK TO ME ABOUT ROAR,BEAST OR ANCIENT COOKIES / POKEMON / SONIC / COMPUTER VIRU
 <p align="center">
   <img width="460" height="300" src="https://github.com/user-attachments/assets/6feec68f-4470-400b-bb36-7aad3138cb3b">
 </p>  
+
+^_^
