@@ -14,7 +14,7 @@
 
 ♤I'M NOT ACTUALLY A BULLY,IF YOU BE FR WITH ME I'LL BE FR BACK. ^_^
 
-[💤]::
+[💤}:
 
 ♧AS MY NAME SUGGESTS. . . I'm actually quite the worried type so I WILL freeze up anytime. I apologize, , it's not your fault if I suddenly get freaked out ^_^
 
