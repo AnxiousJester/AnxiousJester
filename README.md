@@ -23,7 +23,8 @@
 
 ♧
 TALK TO ME ABOUT ROAR,BEAST OR ANCIENT COOKIES / POKEMON / SONIC / COMPUTER VIRUSES,ILL DEFINITELY EITHER YAP BACK OR LISTEN !!! I LOVE THOSE!!
-[💤]::
+
+[💤]:;
 <p align="center">
   <img width="460" height="300" src="https://github.com/user-attachments/assets/6feec68f-4470-400b-bb36-7aad3138cb3b">
 </p>  
