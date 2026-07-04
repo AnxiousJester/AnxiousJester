@@ -6,7 +6,7 @@
 
 ♧ I may sound rude,my apologies. i'm working on it.
 
-{🌘} :: I love austin russo from dandys world.. ask me about my collection! roughly 60 russos are in my possession ♡
+{🌘} :: i'm Currently into my singing monsters the most right now.
 
 ♤ if you try to initate roleplay theres a 20% chance ill actually know what to say ^_^
 
@@ -18,7 +18,7 @@
 ♤audhd...unbelievably easy to make me uncomfortable if I'm alone.
 
 ♧
-TALK TO ME ABOUT ROAR, DANDYS WORLD / PVZ / POKEMON / SONIC / COMPUTER VIRUSES , ILL DEFINITELY EITHER YAP BACK OR LISTEN !!! I LOVE THOSE!!
+TALK TO ME ABOUT ROAR, MY SINGING MONSTERS, PVZ , POKEMON , SONIC , COMPUTER VIRUSES , AND MY OCS(IF YOU KNOW THEM) ILL DEFINITELY LISTEN IF NOT TALK TO YOU ABOUT THEM !!! I LOVE THOSE!!
 
 [🌘}::
 
